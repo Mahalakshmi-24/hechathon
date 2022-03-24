@@ -1,10 +1,13 @@
 # hecKathon
 
 ## Maryam Khan
-## MahaLakshmi
+
+## Mahalakshmi
 
 ### Code Journal
 
-- It was realy good experience working in team
- i learned so much stuff.
-- It gave me idea how i am going to do my final project.
+- It was realy good experience working with maryam.
+
+- actually i didn't help lot her.
+
+- i just did some work at morning seesion.
